@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @selenachau
+- 📫 I work in libraries and archives
+- 👀 I’m interested in collection assessment currently: data tools and DEI
+- 🌱 I’m currently learning German! Und ich mag es wirklich.
+- 💞️ Feel free to reach out with thoughts on collaboration. https://www.linkedin.com/in/selenachau/
